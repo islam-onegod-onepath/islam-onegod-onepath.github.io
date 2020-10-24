@@ -1,1 +1,1 @@
-# islam-onegod-onepath.github.io
+# Islam
